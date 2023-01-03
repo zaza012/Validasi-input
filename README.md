@@ -1,0 +1,7 @@
+# Validasi-input
+
+FIKRI FAHMI AZIM
+
+21103088
+
+SI 05 C
